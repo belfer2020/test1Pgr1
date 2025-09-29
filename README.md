@@ -7,4 +7,18 @@ Dołączyłam po dłuższym czasie - Dagmara
 
 Też tu byłem- Mikołaj :))))))))))))
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Lubie kolor krwisty czerwony
