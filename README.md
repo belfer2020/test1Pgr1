@@ -2,3 +2,5 @@
 testowe repo kl 1P gr1
 
 Za chwilę zaproszę Hanię do współpracy
+
+Dołączyłam po dłuższym czasie - Dagmara
