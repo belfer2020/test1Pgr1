@@ -7,4 +7,3 @@ Dołączyłam po dłuższym czasie - Dagmara
 
 Też tu byłem- Mikołaj :))))))))))))
 
-Mam psa :3
