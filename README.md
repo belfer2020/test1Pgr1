@@ -6,3 +6,5 @@ Za chwilę zaproszę Hanię do współpracy
 Dołączyłam po dłuższym czasie - Dagmara
 
 Też tu byłem- Mikołaj :))))))))))))
+
+Też tu byłem Szymon -_-
